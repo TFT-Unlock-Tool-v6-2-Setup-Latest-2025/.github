@@ -1,7 +1,7 @@
 # TFT Unlock Tool v6.2
 
 If you’ve ever found yourself locked out of your phone or needed to remove restrictions from a mobile device, you might have come across the **TFT Unlock Tool**. This powerful software helps users unlock various mobile devices safely and efficiently. The latest **TFT Unlock Tool v6.2** brings a host of improvements, making unlocking faster, more secure, and easier than ever.
-![Capture](https://github.com/user-attachments/assets/2cd578ea-cf67-47ce-8bf3-844160cf10d9)
+## [GET HERE TFT TOOL](https://tft-unlock-tool.com/)
 
 ## Features of TFT Unlock Tool v6.2
 
